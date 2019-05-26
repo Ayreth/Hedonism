@@ -1,7 +1,12 @@
 #### <p align="center"> All my Skins </p>
 
-### [「八名木 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bg6rir)
-![八名木  ](https://hedonism.s-ul.eu/kB5fGgnS)
+
+### [「Kantoku」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bjr5xz)
+![Kantoku ](https://youtu.be/tB7pvPGe614)
+
+
+### [「Hedonism v2」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bs7gr4)
+![Hedonism ](https://imgur.com/RKJYUWJ)
 
 
 ### [「Hedonism」 [HD]](https://www.reddit.com/r/OsuSkins/comments/al49lf)
@@ -21,7 +26,7 @@
 p](https://ayreth.s-ul.eu/OmsIEG23.png)
 
 ### [「Azur Lane」 based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
-![「Azur Lane2](https://ayreth.s-ul.eu/3Nlm9z4d.png)
+![「Azur Lane2](https://ayreth.s-ul.eu/3Nlm9z4d.png) 
 
 
 ### [「Azur Lane」 based skin | Alternate Gameplay | [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
