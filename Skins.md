@@ -2,7 +2,7 @@
 
 
 ### [「Kantoku」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bjr5xz)
-![Kantoku ](https://youtu.be/tB7pvPGe614)
+![Kantoku ](https://www.youtube.com/watch?v=tB7pvPGe614)
 
 
 ### [「Hedonism v2」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bs7gr4)
