@@ -2,7 +2,7 @@
 
 ### [「Utopia」 [HD]](https://www.reddit.com/r/OsuSkins/comments/cdtmnk)
 ### <p align="center"> [Click here to watch the video](https://www.youtube.com/watch?v=tuovbW-jQNo)</p>
-![UtopiaKantoku ](https://imgur.com/4zFAYmB)
+![Utopia ](https://hedonism.s-ul.eu/H5hgAvvn)
 
 
 
