@@ -4,3 +4,5 @@
 <a href="https://imgur.com/a/VIVUS0I"><img src ="https://hedonism.s-ul.eu/iv3U1jzx" /></a>
 
 <a href="https://imgur.com/a/RWVAPD9"><img src ="https://hedonism.s-ul.eu/1431ed97" /></a>
+
+<a href="https://github.com/Ayreth/Hedonism/blob/master/Skins.md"><img src ="https://hedonism.s-ul.eu/lx4sCQwI" /></a>
