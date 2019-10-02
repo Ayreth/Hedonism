@@ -3,7 +3,6 @@
 
 
 ### [「Atago」 [HD]](https://www.reddit.com/r/OsuSkins/comments/cow652/atagoarts_based_skin_std_hd/)
-### <p align="center"> [Click here to watch the video](https://www.youtube.com/watch?v=tB7pvPGe614)</p>
 ![Atago ](https://hedonism.s-ul.eu/1yIDrLYh)
 
 
