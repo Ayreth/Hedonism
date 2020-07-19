@@ -39,7 +39,7 @@
 ![BluePointed](https://ayreth.s-ul.eu/BXDGWoHU.png)
 
 
-### [「 HDJump's 」 Skin [PRIVATE]]
+### 「 HDJump's 」 Skin [PRIVATE]
 ![HDJump](https://ayrethosu.s-ul.eu/63yYnPNA)
 
 
