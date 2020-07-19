@@ -24,7 +24,7 @@
 
 
 ### [「 Hedonism 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/al49lf)
-![Hedonism ](https://hedonism.s-ul.eu/a5dKpoV3)
+![Hedonism ](https://ayrethosu.s-ul.eu/YxNWaOLr)
 
 
 ### [「 八名木 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bg6rir)
@@ -32,7 +32,7 @@
 
 
 ### [「 Ayreth 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/a285wq)
-![Ayreth ](https://ayreth.s-ul.eu/6d1GS1Pb.png)
+![Ayreth ](https://ayrethosu.s-ul.eu/XewcM9Mu)
 
 
 ### [「 Bluepointed's 」 Skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9ws3ak)
@@ -44,31 +44,27 @@
 
 
 ### [「 Wlop's 」 art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9g9dg8)
-![Wlop](https://ayreth.s-ul.eu/OmsIEG23.png)
+![Wlop](https://ayrethosu.s-ul.eu/ZK2w9Lph)
 
 
 ### [「Azur Lane」 based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
-![「Azur Lane2](https://ayreth.s-ul.eu/3Nlm9z4d.png) 
-
-
-### [「Azur Lane」 based skin | Alternate Gameplay | [HD]](https://www.reddit.com/r/OsuSkins/comments/9hrfrz)
-![「Azur Lane1](https://ayreth.s-ul.eu/7BcC1N5R.png)
+![「Azur Lane2](https://ayrethosu.s-ul.eu/MzRamSsm) 
 
 
 ### [「Hiten」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/9920b5)
-![Hiten](https://ayreth.s-ul.eu/Sl53cJAh.png)
+![Hiten](https://ayrethosu.s-ul.eu/kSZYeBgP)
 
 
 ### [「 純白可憐 」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/95uybh)
-![純白可憐](https://ayreth.s-ul.eu/Jy39iXo1.png)
+![純白可憐](https://ayrethosu.s-ul.eu/WNFrapi1)
 
 
 ### [「千夜QYS3」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/8yliin)
-![千夜QYS3](https://ayreth.s-ul.eu/eGknQKTd.png)
+![千夜QYS3](https://ayrethosu.s-ul.eu/gVemDn8B)
 
 
 ### [「ももこ」's art based skin [HD]](https://www.reddit.com/r/OsuSkins/comments/8y8w9e)
-![ももこ](https://ayreth.s-ul.eu/5AcmKPnX.png)
+![ももこ](https://ayrethosu.s-ul.eu/W2GVXrGN)
 
 
 
