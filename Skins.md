@@ -27,6 +27,10 @@
 ![Hedonism ](https://hedonism.s-ul.eu/a5dKpoV3)
 
 
+### [「 八名木 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bg6rir)
+![八名木](https://ayrethosu.s-ul.eu/1x9uACko)
+
+
 ### [「Ayreth 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/a285wq)
 ![Ayreth ](https://ayreth.s-ul.eu/6d1GS1Pb.png)
 
